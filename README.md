@@ -1,0 +1,2 @@
+# projekt_informatyka_2026_27_208865
+informatyka-projekt
